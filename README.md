@@ -1,1 +1,1 @@
-# IKT-Jap-n
+# IKT-Japan
